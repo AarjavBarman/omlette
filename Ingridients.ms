@@ -1,0 +1,1 @@
+nedd an egg,cooking oil,1 table spoon onions chopped,1 tablespoon capsicum chopped,1 tablespoon tomatoes chopped,1 tablespoon salt
